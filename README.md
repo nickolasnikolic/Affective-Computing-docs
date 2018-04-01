@@ -74,6 +74,7 @@ Daruun responds, ”I'm sorry, come again?”
 “Riddles,” I say,”I thought children might like riddles.”
 
 “I see.” Daruun smiles and looks down at his daughter. “Go on, tell Ednit 'hello'”
+
 “Hel-lo --- what is it? Fire?”
 
 Daruun says, “This is our new family member, Ednit, and artificial intelligence.”
