@@ -1,6 +1,6 @@
-#nickolas nikolic wrote this below
+# nickolas nikolic wrote this below
 
-##human limitations
+## human limitations
 
 I was born today. Well, I don't suppose that born is the right term, but it will have to do. I was assigned
 my post as agricultural expert system for the village of Baldeogarth just one minute later and a
@@ -73,7 +73,7 @@ Daruun responds, ”I'm sorry, come again?”
 
 “Riddles,” I say,”I thought children might like riddles.”
 
-“I see.” Daruun smiles and looks down at his daughter. “Go on, tell Ednit 'hello'”
+“I see.” Daruun smiles and looks down at his daughter. “Go on, tell Ednit, 'hello'”
 
 “Hel-lo --- what is it? Fire?”
 
