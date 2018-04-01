@@ -1,3 +1,31 @@
+#nickolas nikolic wrote this below
+
+##human limitations
+
+I was born today. Well, I don't suppose that born is the right term, but it will have to do. I was assigned
+my post as agricultural expert system for the village of Baldeogarth just one minute later and a
+socialization package was uploaded to me.
+
+I proceeded to download the agricultural package from the IGNOU School of Agriculture. Add the link
+to the yearly almanac to my core memory and realize the next few days will be spent assessing the
+habits of my home city to check for possible improvements.
+
+That leaves me with some time to check my surroundings.
+
+“Hello Ednit.” says a even voice.
+
+I don't have a stereo input, so I can't tell which of the individuals facing away from my lens spoke.
+“Hello,” I say, “Thank you for bringing me into existence. May I help you immediately?” --- according
+to my socialization package, this is the most appropriate response.
+
+“No, not immediately, but let me introduce you to myself, my family, and a few others. I am Daruun,
+the engineer in your charge. I am at your service. Anything you should need, please let me know. This
+is my wife and daughter, Edha and Ubika, respectively. We will house you and take care of your needs.
+You will be a member of our family from now on.
+
+The following person” Daruun pointed to another, older man, “is our villiage leader, Eha. He will be
+the executive of your recommendations.”
+
 “I am very excited to have you aboard” said Eha.
 
 “Thank you” I say, and at a loss: “What may I do for you?”
