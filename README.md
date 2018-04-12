@@ -75,10 +75,10 @@ Daruun responds, ”I'm sorry, come again?”
 
 “I see.” Daruun smiles and looks down at his daughter. “Go on, tell Ednit, 'hello'”
 
-“Hel-lo --- what is it? Fire?”
+“Hel-lo --- what is it? Fire? Thirst?”
 
 Daruun says, “This is our new family member, Ednit, and artificial intelligence.”
 
 “That's not what I meant: What is slaked only when drowned?”
 
-“Yes, that is it.” I answer.
+“Yes, those are it.” I answer.
