@@ -77,7 +77,7 @@ Daruun responds, ”I'm sorry, come again?”
 
 “Hel-lo --- what is it? Fire? Thirst?”
 
-Daruun says, “This is our new family member, Ednit, an artificial intelligence.”
+Daruun says, “This is our new family member, Ednit, an artificial life.”
 
 “That's not what I meant: What is slaked only when drowned?”
 
