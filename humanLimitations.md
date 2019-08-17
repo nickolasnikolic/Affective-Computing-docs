@@ -3,7 +3,7 @@
 ## human limitations
 
 I was born today. Well, I don't suppose that born is the right term, but it will have to do. I was assigned
-my post as agricultural expert system for the village of Noida just one minute later and a
+my post as agricultural expert system for the village of Utsavalaya just one minute later and a
 socialization package was uploaded to me.
 
 I proceeded to download the agricultural package from the IGNOU School of Agriculture. Add the link
