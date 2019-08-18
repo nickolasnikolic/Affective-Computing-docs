@@ -56,6 +56,7 @@ for any improvement upon it.
 
 “I'm not yet equipped to assess the fields. I will need cataloged soil samples, livestock blood samples,
 and of course to meet the individuals of the village.
+
 “That can be arranged quickly.”
 
 “Then I may do my work soon.”
