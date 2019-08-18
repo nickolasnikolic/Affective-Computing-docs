@@ -23,7 +23,7 @@ the engineer in your charge. I am at your service. Anything you should need, ple
 is my wife and daughter, Edha and Ubika, respectively. We will house you and take care of your needs.
 You will be a member of our family from now on.
 
-The following person” Daruun pointed to another, older man, “is our villiage leader, Eha. He will be
+The following person” Daruun pointed to another, older man, “is our village leader, Eha. He will be
 the executive of your recommendations.”
 
 “I am very excited to have you aboard” said Eha.
